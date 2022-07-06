@@ -1,4 +1,4 @@
-### SEJAM BEM VINDOS AO MEU PERFIL!
+### SEJAM BEM-VINDOS AO MEU PERFIL!
 Eu sou o Alexandre Praisler
 
 
